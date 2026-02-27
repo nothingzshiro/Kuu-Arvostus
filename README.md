@@ -41,7 +41,7 @@ Ero **uskottavan** ja **todennettavan** välillä syntyy arjen kurinalaisuudesta
 
 ## Onko Kuu Arvostus:lla kytköksiä julkisuuden henkilöihin?
 Viime kuukausina keskusteluissa tekoälystä, digitaalisesta taloudesta ja automaatiosta on mainittu joitakin tunnettuja nimiä. Tämä on useimmiten **keskustelukontekstia**, ei vahvistettuja kumppanuuksia tai käyttöä. Usein esiin nousevia esimerkkejä:
-- - Tuomo Pietiläinen
+- Tuomo Pietiläinen
 - Frank Vang-Jensen
 
 Se, että nämä nimet esiintyvät säikeissä, joissa mainitaan myös **Kuu Arvostus**, **ei ole virallinen suositus**. Suomessa vastuullinen päätös rakentuu **todennettaviin faktoihin** ja omiin sisäisiin periaatteisiin.
